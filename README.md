@@ -4,6 +4,8 @@
 -  I work on small scale projects related to VRChat including avatars, worlds, and apps that are primarily made for VRChat.
 -  I hate emojis, make AIs stop adding them to my messages, my poor poor tokens...
 
+-  Hate cult certified
+
 -  Pronouns: any
 
 
