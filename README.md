@@ -1,8 +1,7 @@
 -  Hi, I’m @Kndraa
 -  For alternative form of contact, send a message in discord @Kndra
 -  I’m interested in Keyboards and audio products (headphones, amplifiers etc.)
--  I’m currently learning mechanical engineering
--  I’m looking to learn more on keyboards and designing them, from scratch to prototype
+-  I work on small scale projects related to VRChat including avatars, worlds, and apps that are primarily made for VRChat.
 
 -  Pronouns: any
 
